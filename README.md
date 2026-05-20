@@ -15,4 +15,11 @@
 
 <img width="1366" height="768" alt="image" src="https://github.com/user-attachments/assets/50e89c0d-6806-46af-ac3f-3663a7336ab7" />
 
+# Design-3
+
+⭐⭐----> Design
+
+<img width="1366" height="768" alt="image" src="https://github.com/user-attachments/assets/e0d1631b-0583-4d2f-a137-13c3c8af030e" />
+
+
 
